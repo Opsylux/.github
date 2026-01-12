@@ -30,7 +30,7 @@ so venue owners can focus on creating memorable experiences.
 
 ### Learn More
 🌐 Website: **https://opsylux.com**  
-📧 Contact: *your business email*
+📧 Contact: *info@opsylux.com*
 
 ---
 
